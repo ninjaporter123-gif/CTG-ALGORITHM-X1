@@ -1,1 +1,0 @@
-# CTG-ALGORITHM-X1
